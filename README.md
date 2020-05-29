@@ -1,0 +1,2 @@
+# macky
+Lerning to 
